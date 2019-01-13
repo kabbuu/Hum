@@ -1,1 +1,1 @@
-# Hum
+# Hum entrepreneur
